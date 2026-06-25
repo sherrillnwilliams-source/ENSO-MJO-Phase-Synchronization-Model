@@ -102,7 +102,7 @@ Open to collaboration, licensing discussions, and commercial applications.
 
 **Sherrill Williams**  
 📧 sherrill.n.williams@gmail.com  
-💼   
+💼 linkedin.com/in/sherrill-williams-ab7963393
 🐙 [your GitHub URL]
 
 ---

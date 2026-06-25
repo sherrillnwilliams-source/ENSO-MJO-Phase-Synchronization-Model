@@ -100,9 +100,9 @@ This framework has direct relevance for:
 
 Open to collaboration, licensing discussions, and commercial applications.
 
-**[Your Name]**  
-📧 [your email]  
-💼 [your LinkedIn URL]  
+**Sherrill Williams**  
+📧 sherrill.n.williams@gmail.com  
+💼   
 🐙 [your GitHub URL]
 
 ---
